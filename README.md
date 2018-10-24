@@ -1,4 +1,1 @@
-# 125
 
-EXPLOSIN
-RHGRHTR
